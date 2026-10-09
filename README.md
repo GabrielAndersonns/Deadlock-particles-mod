@@ -3,3 +3,5 @@ deadlock mod  in development just paste the archive in your addons if the rings 
 
 https://github.com/user-attachments/assets/0f88005f-5ab3-47ba-a9d0-334abbb9ee61
 
+Pls give me a feedback
+https://docs.google.com/forms/d/e/1FAIpQLScPOTbgOoFX0Lye-5ilpxTKZ795qc-XW6RjKURTkSsPHiXsDg/viewform?usp=publish-editor
